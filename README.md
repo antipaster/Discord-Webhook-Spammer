@@ -1,1 +1,1 @@
-"# Discord-Webhook-Spammer" 
+made it in 2 secs lol
